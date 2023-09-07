@@ -1,0 +1,8 @@
+![](img/project_part1/project_part1-1.png)
+![](img/project_part1/project_part1-2.png)
+![](img/project_part1/project_part1-3.png)
+![](img/project_part1/project_part1-4.png)
+![](img/project_part1/project_part1-5.png)
+![](img/project_part1/project_part1-6.png)
+![](img/project_part1/project_part1-7.png)
+![](img/project_part1/project_part1-8.png)
